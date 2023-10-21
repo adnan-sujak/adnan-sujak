@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **sujakadnan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_hSNaWbqunPIjvmz36g6CnlhxylGlpVx/view?usp=share_link](https://drive.google.com/file/d/1_hSNaWbqunPIjvmz36g6CnlhxylGlpVx/view?usp=share_link)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1_hSNaWbqunPIjvmz36g6CnlhxylGlpVx/view?usp=share_link](https://drive.google.com/file/d/1_hSNaWbqunPIjvmz36g6CnlhxylGlpVx/view?usp=share_lin](https://drive.google.com/file/d/1p6KnYSjj_l-80MxCdS6HMnJPNgDr4Q1z/view?usp=sharing)k)
 
 - ⚡ Fun fact **I've been working with computers since I was 12!**
 
